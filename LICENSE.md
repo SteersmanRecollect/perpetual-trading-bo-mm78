@@ -1,4 +1,4 @@
-# 
+# perpetual trading bot ultimate Automation | low-frequency & position-sizing offers the most advanced perpetual trading bot, with low-frequency and position-sizing. Ideal for
 
 
 
